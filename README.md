@@ -53,5 +53,4 @@ Bienfait Antoine LD
 SAMIA Maha LD
 
 Luna Sommaro LD
-
-Maxence Bartoli LD
+Eva Klein LP I3D
